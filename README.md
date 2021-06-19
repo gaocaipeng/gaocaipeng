@@ -1,4 +1,4 @@
-### Hi there, I'm [高彩鹏](https://www.gaocaipeng.com). 👋
+### Hi there, I'm [GaoCaiPeng](https://www.gaocaipeng.com). 👋
 
 I am a boy from china.
 
